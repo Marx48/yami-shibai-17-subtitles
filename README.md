@@ -4,3 +4,8 @@ as far as I could find, subtitles were still unavailable in other languages.
 These are not official subtitles and may contain translation errors. 
 AI was used as an aid during the translation process and some personal changes, my Japanese knowledge is still quite basic so, sorry.
 Feel free to use and share these subtitle files with the corresponding episodes.
+
+## 🔗 Where to Find Releases
+You can download the full batches and video releases on:
+* **AnimeTosho / NekoBT**
+* **[Google Drive](https://drive.google.com/drive/folders/1wmraspz4jfVbFPv4hwf1scyatP49oX7k?usp=drive_link)**
