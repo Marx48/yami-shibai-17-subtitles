@@ -7,5 +7,4 @@ Feel free to use and share these subtitle files with the corresponding episodes.
 
 ## 🔗 Where to Find Releases
 You can download the full batches and video releases on:
-* **AnimeTosho / NekoBT**
 * **[Google Drive](https://drive.google.com/drive/folders/1wmraspz4jfVbFPv4hwf1scyatP49oX7k?usp=drive_link)**
