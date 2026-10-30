@@ -9,6 +9,6 @@ Feel free to use and share these subtitle files with the corresponding episodes.
 You can download the full batches and video releases on:
 * **[Google Drive](https://drive.google.com/drive/folders/1wmraspz4jfVbFPv4hwf1scyatP49oX7k?usp=drive_link)**
 
-   **[Nekobt](https://nekobt.to/search?media_id=s4269&group_id=13154952604465)**
+*  **[Nekobt](https://nekobt.to/search?media_id=s4269&group_id=13154952604465)**
 
-   **[AnimeTosho](https://animetosho.net/series/20192)**
+* **[AnimeTosho](https://animetosho.net/series/20192)**
